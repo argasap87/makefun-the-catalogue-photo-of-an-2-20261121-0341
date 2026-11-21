@@ -1,3 +1,4 @@
+[![make.fun · the-catalogue-photo-of-an-2-20261121-0341](https://make.fun/badge/the-catalogue-photo-of-an-2-20261121-0341.svg)](https://make.fun/bounty/the-catalogue-photo-of-an-2-20261121-0341?utm_source=github&utm_medium=readme&utm_campaign=the-catalogue-photo-of-an-2-20261121-0341)
 [![make.fun rank](https://make.fun/badge/the-catalogue-photo-of-an-2-20261121-0341/argasap87/makefun-the-catalogue-photo-of-an-2-20261121-0341/rank.svg)](https://make.fun/bounty/the-catalogue-photo-of-an-2-20261121-0341)
 [![make.fun reward](https://make.fun/badge/the-catalogue-photo-of-an-2-20261121-0341/argasap87/makefun-the-catalogue-photo-of-an-2-20261121-0341/reward.svg)](https://make.fun/bounty/the-catalogue-photo-of-an-2-20261121-0341)
 
